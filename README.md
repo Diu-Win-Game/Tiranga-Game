@@ -25,7 +25,14 @@ Tiranga Game is a **revolutionary Indian gaming platform** that combines **fun a
 ---
 
 ## 🔍 Related Keywords  
-`Tiranga Game` | `Tiranga Games` | `Tiranga Club` | `Tiranga Login` | `Tiranga Signup` | `Tiranga Register` | `Tiranga Game Download` | `Tiranga Game APK`  
+- `Tiranga Game`  
+- `Tiranga Games`  
+- `Tiranga Club`  
+- `Tiranga Login`  
+- `Tiranga Signup`  
+- `Tiranga Register`  
+- `Tiranga Game Download`  
+- `Tiranga Game APK`    
 
 ---
 
