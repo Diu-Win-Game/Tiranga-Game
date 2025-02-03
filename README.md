@@ -35,10 +35,3 @@ Tiranga Game is a **revolutionary Indian gaming platform** that combines **fun a
 - `Tiranga Game APK`    
 
 ---
-
-### 📩 Need Help?  
-For any queries or support, feel free to reach out!  
-
----
-
-🔥 **Join Tiranga Game today and start winning real cash rewards!**  
